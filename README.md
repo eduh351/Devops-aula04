@@ -1,3 +1,5 @@
 Homem aranha<br>
-Evangers<br>
+Pantera negra<br>
 x-mem<br>
+Doutor estranho<br>
+
